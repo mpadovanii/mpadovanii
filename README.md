@@ -1,4 +1,4 @@
-# Maria Padovani 🌙
+# Maria Padovani 
 
 **`Desenvolvedora FullStack`**
 
